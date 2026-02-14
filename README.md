@@ -1,1 +1,0 @@
-# Detecting_Socioeconomic_Structures_and_Well_Being_Dynamics
